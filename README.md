@@ -14,7 +14,7 @@
 
 😄 Pronouns: **She/Her**  
 
-⚡ Fun fact: I believe in continuous learning and making the most of every opportunity—**growth is a daily habit!** 🚀  
+⚡ Fun fact: I believe in continuous learning and making the most of every opportunity - **growth is a daily habit!** 🚀  
 
 ---
 
